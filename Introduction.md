@@ -1,6 +1,6 @@
 I’m @NullSpaceRabbit ^w^ *
 She/her *
-Game developer and artist *
-likes video games and anime * 
+Game developer *
+likes video games, anime, managa and a few other things * 
 Is currently putting a pipe bomb within your mail box *
 
